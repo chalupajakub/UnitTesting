@@ -1,3 +1,3 @@
 # UnitTesting
 
-Pár Jakub Chalupa + Filip Kocáb ❤️
+Pár: Jakub Chalupa + Filip Kocáb ❤️
